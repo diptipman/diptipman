@@ -6,8 +6,8 @@
 - I will not respond to schitzophrenic babble.
 I'm pro big-pharma and Technology.  Not a luddite. Never was.
 
-good things... THEOLOGY. Neuroscience. Art. Philosophy. Capitalism. Consent. Sweets. Bloody Steaks. Gorey films. Dreams, I like dreams a lot.  Also rap.
-Bad Things - widespread vegetarianism/rigid caste assignment/delusions of reincarnation or Karma/Coercion :)
+- good things... THEOLOGY. Neuroscience. Art. Philosophy. Capitalism. Consent. Sweets. Bloody Steaks. Gorey films. Dreams, I like dreams a lot.  Also rap.
+- Bad Things... widespread vegetarianism/rigid caste assignment/delusions of reincarnation or Karma/Coercion :)
 - 
 <!---
 diptipman/diptipman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
