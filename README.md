@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @diptipman
+- 👋 Hi, I’m @diptipman... Thomas Parish.
 - 👀 I’m interested in ... Theology. Neuroscience. Illustrating.
-- 🌱 I’m currently learning ...Theology. Neuroscience. Illustrating
+-- 🌱 I’m currently learning. Theology. Neuroscience. Illustrating
 - 💞️ I’m looking to collaborate on ...Theology. Neuroscience. Illustrating.
 - 📫 How to reach me ... I'm probably busy working or studying or illustrating.  I am not rich. I have to exert effort out of necessity. I am busy.
 - 
