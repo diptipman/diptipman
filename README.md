@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @diptipman... I'm Thomas Parish.  I never catfish, bully, cheat, steal, lord over people. I seek out my own dishonesty and then correct it.
+- 👋 Hi, I’m @diptipman... I'm Thomas Parish.  I never catfish, bully, cheat, steal, or lord over people. I seek out my own dishonesty and then correct it.
 - 👀 I’m interested in ... Theology. Neuroscience. Illustrating. (customer centric orientation)
 - 🌱 I’m currently learning............... Theology. Neuroscience. Illustrating.  (revising strategy)
 - 💞️ I’m looking to collaborate on ...Theology. Neuroscience. Illustrating. (Business Applications)
