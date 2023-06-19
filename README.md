@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @diptipman... I'm Thomas Parish.
-- 👀 I’m interested in ... Theology. Neuroscience. Illustrating. (customer centrici orientation)
+- 👋 Hi, I’m @diptipman... I'm Thomas Parish.  I never catfish, bully, cheat, steal, lord over people. I seek out my own dishonesty and then correct it.
+- 👀 I’m interested in ... Theology. Neuroscience. Illustrating. (customer centric orientation)
 - 🌱 I’m currently learning............... Theology. Neuroscience. Illustrating.  (revising strategy)
 - 💞️ I’m looking to collaborate on ...Theology. Neuroscience. Illustrating. (Business Applications)
 - 📫 How to reach me ... I'm probably busy working or studying or illustrating.  I am not rich, in fact I AM a poor student. I have to exert effort out of necessity. I am busy.  Kindly asking that you contact me in written form via email 
